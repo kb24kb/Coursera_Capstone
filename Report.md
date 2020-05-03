@@ -10,7 +10,7 @@ Pegging Mumbai's organized foodservice market at Rs 40,480 crore, the report not
 
 The average spend per month per household on eating out in the city is Rs 2,890, higher than the national average of Rs 2,500, it said while adding that the average frequency of consuming non-home cooked food in Mumbai is 4.2 times per month including dine-out, delivery, and takeaways.
 
-### Traget Audience
+### Target Audience
 Entrepreneurs interested in the opening restaurant in Mumbai, who may require external advice concerning what type of restaurants are in trend and where exactly it should be inaugurated which could create a high chance of being successful  
 
 ## Data Description
